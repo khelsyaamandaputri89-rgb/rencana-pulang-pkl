@@ -7,3 +7,4 @@
 5. cepat mendapatkan pekerjaan
 6. menjalankan affiliate
 7. bismillah
+8. aamiinnnnnn
